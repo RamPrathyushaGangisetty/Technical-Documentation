@@ -1,6 +1,6 @@
-# Harideep K
-##### +91 8886520096
-##### harideep028@gmail.com
+# Ram Prathyusha G
+##### +91 8247432666
+##### prathyushagangisetty2017@gmail.com
 
 ### Career Objective:
 Seeking a **challenging** *Job* to further enhance my skill set. 
